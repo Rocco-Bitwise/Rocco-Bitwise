@@ -1,1 +1,1 @@
-![alt text](https://avatars.githubusercontent.com/u/113811627?v=4)
+![alt text](https://i.imgur.com/Mi3UgGk.png)
